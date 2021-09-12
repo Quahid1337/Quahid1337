@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Quahid1337
+- 👀 I’m interested in c++
+- 🌱 I’m currently learning c++
+- 📫 How to reach me Katara ᴬ#0204 / @creature1337
